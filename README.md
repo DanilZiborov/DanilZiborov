@@ -22,7 +22,7 @@
 </p>
 
 
-Мой профиль в Telegram: https://t.me/hiddenflame
+Написать мне Telegram: https://t.me/hiddenflame
 
 
 
